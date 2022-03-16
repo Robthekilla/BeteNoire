@@ -42,6 +42,38 @@ lmfao this is all a fucking joke skidded from https://github.com/replydev/Qubosc
 <br />
 <br />
 
+
+### His Retarded SS from chatlogs
+![7TtqaTz](https://user-images.githubusercontent.com/89362919/158644420-8b135822-5e16-4f41-b142-ac15fe5bbe3c.png)
+![ANmRt60](https://user-images.githubusercontent.com/89362919/158644427-e3ec8324-4092-48d0-9ad6-61c1938cb5f4.png)
+![CkNyUD0](https://user-images.githubusercontent.com/89362919/158644432-3f899357-2506-4d0c-aab6-5cdaf6aae47d.png)
+![DhaMEf9](https://user-images.githubusercontent.com/89362919/158644448-5c4221aa-1c7e-4524-aa0e-e596c3d001d4.jpeg)
+![djDK9Ks](https://user-images.githubusercontent.com/89362919/158644452-2293d8f7-76b7-4e6e-a884-66948db5d0aa.png)
+![eFEq7aQ](https://user-images.githubusercontent.com/89362919/158644457-595d2135-92b7-4812-9dc4-5a08782b7f1f.png)
+![ejqr1SO](https://user-images.githubusercontent.com/89362919/158644458-c0773af4-f325-47bf-832c-73c6031a7f82.png)
+![ET9tuLG](https://user-images.githubusercontent.com/89362919/158644460-9124dd5e-68e4-484e-b26f-24ee75baf7da.png)
+![fFZsRiE](https://user-images.githubusercontent.com/89362919/158644465-7aa18e40-57d2-45a4-93b7-bd185fea9cfc.png)
+![fziI1qv](https://user-images.githubusercontent.com/89362919/158644469-e146f47f-fc70-4eab-be78-4d01f2a00f58.png)
+![hAgUnKy](https://user-images.githubusercontent.com/89362919/158644476-bd7cbb03-f671-4dbb-9c1a-92f0b403d83c.gif)
+![hgOPldr](https://user-images.githubusercontent.com/89362919/158644500-c47dd378-2a13-4317-abce-2ec503a446d9.png)
+![Hlzx3NG](https://user-images.githubusercontent.com/89362919/158644502-550f4999-8d68-4588-8197-1044d20775a3.png)
+![iwrTuEs](https://user-images.githubusercontent.com/89362919/158644505-cff92aff-dff8-4472-bc0e-5186a455fc95.png)
+![jjDV39U](https://user-images.githubusercontent.com/89362919/158644509-e9b66160-a8b7-4d19-9737-e7b629d8957e.png)
+![jJsJUcv](https://user-images.githubusercontent.com/89362919/158644514-f25d5727-9907-42b8-b654-450325bf7093.png)
+
+
+https://user-images.githubusercontent.com/89362919/158644518-3f994929-95eb-4634-a6c4-ab5f848e3b50.mp4
+
+![LjniuZj](https://user-images.githubusercontent.com/89362919/158644520-84c0c6c0-3661-491f-bc5f-ed9e58bb702e.gif)
+![NhZCa10](https://user-images.githubusercontent.com/89362919/158644534-7ed9ca47-4e74-474b-8228-561450e65c6b.jpeg)
+![NN9Vhbm](https://user-images.githubusercontent.com/89362919/158644550-4d630022-0fc2-4285-9119-b78de9ad6929.png)
+![NswjRJH](https://user-images.githubusercontent.com/89362919/158644553-0deae6d5-09ab-4e7a-8414-e875b3cd4be3.jpeg)
+![R1S4g7O](https://user-images.githubusercontent.com/89362919/158644558-8b04d8c4-df5f-4f86-afa1-34c491a7f32a.jpeg)
+![SrHK3P1](https://user-images.githubusercontent.com/89362919/158644585-c33edd91-1278-4441-b0cc-7bf2e506451d.png)
+![TP13Q9w](https://user-images.githubusercontent.com/89362919/158644589-fa896819-180e-4aa0-aa20-a7cf34f74f1a.gif)
+![wNrSTbe](https://user-images.githubusercontent.com/89362919/158644604-66853e80-70f6-415b-9098-e8849865fa08.jpeg)
+![6tBgFj4](https://user-images.githubusercontent.com/89362919/158644605-c151f5a1-c7f0-4516-8e30-8a1b609bba76.gif)
+
 ---
 
 [website]: https://www.youtube.com/watch?v=KurQppajEJk
@@ -62,3 +94,5 @@ lmfao this is all a fucking joke skidded from https://github.com/replydev/Qubosc
 [novatogithub]: https://github.com/ImALolNoob
 [bigsigma2b2tgithub]: https://github.com/ItsYoungDaddy
 [blockchain]: https://www.blockchain.com/
+
+
